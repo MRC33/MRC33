@@ -6,4 +6,4 @@
 - 💬 Ask me about recruitment, talent acquisition, process optimisation, dog training, basketball and organising things.
 - 📫 How to reach me: mercedes@masterbranch.io / mercedes@aura-labs.com 
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I am a husky with strong academic background @  https://www.instagram.com/igorthehuskyhusky/- 
+- ⚡ Fun fact: I am a husky with strong academic background @  https://www.instagram.com/igorthehuskyhusky/
