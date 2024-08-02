@@ -4,5 +4,5 @@
 - 🇭🇺 [Apply for Budapest based roles](https://www.worldquant.com/career-listing/?location=budapest-hungary&department=)
 - 🇬🇧 [Apply for London based roles](https://www.worldquant.com/career-listing/?location=london-united-kingdom&department=technology-division)
 - 📫 How to reach me: mercedesz.hevesi@worldquant.com
-- 🌱 I’m currently learning about investment strategies and self-reflextion. 
+- 🌱 I’m currently learning about investment strategies and self-reflection. 
 - ⚡ Fun fact: I am a husky with strong academic background @[igorthehuskyhusky](https://www.instagram.com/igorthehuskyhusky/)
